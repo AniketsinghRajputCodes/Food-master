@@ -1,4 +1,4 @@
-Thanks for downloading this theme!
+You can see our resturant website here : https://aniketsinghrajputcodes.github.io/Food-master/#
 
 ## Other Useful Links
 
